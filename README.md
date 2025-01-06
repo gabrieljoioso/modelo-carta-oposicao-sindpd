@@ -1,0 +1,1 @@
+# modelo-carta-oposicao-sindpd
